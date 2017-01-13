@@ -1,9 +1,8 @@
 # DGM1600
 
-Groceries:
-Carrots
-Dip
-Explosives
-Grungy Drink
-Pocky Sticks
-A Squid Friend
+Fee 
+Fi
+Pho
+Fum
+I shot myself
+in the thumb
