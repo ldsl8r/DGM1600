@@ -2,3 +2,4 @@
 
 what kind of a song is the song in our hearts?
 the song in our minds is but a pail comparison.
+but the song of our hearts is a sweet reflection of our souls underneath.
