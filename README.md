@@ -1,6 +1,7 @@
 # DGM1600
 
 what kind of a song is the song in our hearts?
+war or lust to name a few
 burning rage or cold cold fear
 the song in our minds is but a pail comparison.
 but the song of our hearts is a sweet reflection of our souls underneath.
